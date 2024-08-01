@@ -5,10 +5,11 @@
   ☆⌒(ゝ。∂)  ꒰꒰Noan | Ryan ㅤㅤ︶ ꒷꒦︶ ㅤㅤㅤ ୧  ‧ 🎐 ⋅ㅤㅤㅤㅤㅤㅤㅤ17 years   ‧₊˚ ⋅  
 
   
-  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ![](https://media.tenor.com/SpOAfLEr8yQAAAAM/blinkie-blinkies.gif)
+  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ![](https://media.tenor.com/DjdHtCFUEooAAAAi/alastor-hazbin-hotel.gif)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰        ͜͡❀       ꒰   ୭ৎ   ꒱       ❀ ͜͡       ꒱
 ##   ㅤજ⁀➴ㅤ˙ . ꒷ 📍 . ˙—ㅤ entrar em CONTATO!!༝༚༝༚ㅤ★⌒ヽㅤΣ(°ロ°)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ@4akitto on X ㅤㅤㅤ ⊹ㅤ  ︵      🧤 ̼        ֹㅤㅤ@ohkagehara on Instagram
 
-![](https://media.tenor.com/G-ihKadskqQAAAAM/animecore-scenecore.gif)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ@4akitto on X!
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ@ohkagehara on Instagram
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media1.tenor.com/m/KXMpZPuGx_sAAAAC/blood-dripping.gif)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   
